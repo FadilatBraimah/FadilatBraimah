@@ -1,5 +1,5 @@
 - Hi, I’m @FadilatBraimah
 - 👀 I’m interested in Community learning, Data Visualization, and creating amazing projects
-- 🌱 I’m currently learning Advanced Excel and also mastering my Intermidiate PowerBI skills
+- 🌱 I’m currently working on my career as a data analyst
 - 💞️ I’m looking to collaborate on Projects and Communities
 - 📫You can reach me on Twitter @F_deela, Linkedin https://www.linkedin.com/in/fadilat-braimah-680795201/
