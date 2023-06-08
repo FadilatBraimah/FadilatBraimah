@@ -1,5 +1,6 @@
 - Hi, I’m Fadilat Braimah
 - I’m interested in Community learning, Data Visualization, and creating amazing projects
 - I’m currently working on my career as a data analyst
-- 💞️ I’m looking to collaborate on Projects and Communities
-- 📫You can reach me on Twitter @F_deela, Linkedin https://www.linkedin.com/in/fadilat-braimah-680795201/
+- I’m looking to collaborate on Projects and Communities
+- **CLICK ON REPOSITORIES TO VIEW MY PROJECTS** 
+- _Have a nice time here_ 🥰
